@@ -1,4 +1,4 @@
 
 # I'm Bani, also known as c 
-I am learning code, most of this is new to me.
+I am mainly known for my Aliucord themes
 
